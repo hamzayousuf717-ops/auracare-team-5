@@ -1,1 +1,0 @@
-# auracare-team-5
